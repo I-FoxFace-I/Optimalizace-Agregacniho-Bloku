@@ -1,0 +1,1 @@
+# Optimalizace-Agregacniho-Bloku
